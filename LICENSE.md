@@ -1,4 +1,4 @@
-# 
+# Nuevo DaVinci Resolve efectos para Mac OS | Inteligente DaVinci Resolve efectos para PC Windows. Con vista de espectrograma y recorte de audio — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
